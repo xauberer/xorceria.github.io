@@ -1,0 +1,9 @@
+# Workflow States Taxonomy generated Sat, 07 Jul 2018 19:52:33 +0000
+Final:
+    name: Final
+In Progress:
+    name: In Progress
+Initial Draft:
+    name: Initial Draft
+Under Review:
+    name: Under Review
