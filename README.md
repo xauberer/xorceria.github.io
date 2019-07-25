@@ -1,3 +1,3 @@
 # xorceria.github.io
 
-## This is source code for my astrological homepage.
+## This is source code for my astrological homepage: gwiazdydzisiaj.pl
