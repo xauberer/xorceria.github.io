@@ -1,0 +1,85 @@
+---
+layout: post
+title: Assange i atak na Republikę Ekwadoru (repost)
+published: true
+author: sr44089gk0g398f45gi0g9hyg354
+comments: false
+date: 2012-09-14 09:09:23
+tags: [ ]
+categories:
+    - glosy-ze-swiata
+    - ze-swiata
+permalink: /pl/zmiana-sie-zaczyna-repost
+---
+
+  autor: Nicola di Cora Modigliani Artykuł ten został przetłumaczony na angielski przez Sandhya Jain.
+
+
+Mówimy o geopolityce i wolności dostępu do informacji. To, co działo się wczoraj (17 sierpnia 2012 – przypis red.) technicznie (czyli politycznie) zaczęło się **12 grudnia 2008** r., choć niektórzy mówią, że już we wrześniu tamtego roku, lecz zajęło 4 lata zanim fala szoku dotarła do Europy i Ameryki. Sprawa tyczy się Juliana Assange, Wikileaks oraz Republiki Ekwadoru. Wbrew temu, co sądzicie, że cały kontynent amerykański, Australia, Europa, nawet cały świat były takie same przez te dziesięć lat, okazuje się że jednak świat nie działał w ten sam sposób.
+
+We Włoszech nikomu nie powiedziano o zmaganiach między Brazylią a ONZ-tem, źle zarządzanym przez Christine Lagarde, która została szefową MFW, tymczasem Włochy zostały oficjalnie relegowane ze składu 8 największych gospodarek światowych, bowiem są na 9 miejscu w świecie. Ich miejsce zajęła Brazylia. A więc na następnym szczycie G8, Włochy nie powinny być zaproszone, a za to powinna zjawić się Brazylia. A skutkiem tego podjęto decyzję usunięcia ciała o nazwie G8, a w to miejsce nowym standardem stało się G10.
+
+Europa, na czele z Anglią i Niemcami, po prostu nie może zaakceptować triumfu „keynes’izmu” w Ameryce Południowej. Kwintesencją głównych założeń zachodnich pozostaje: „Niech oni lepiej siedzą u siebie w domu i będą wdzięczni, że pozwalamy im przetrwać, jak Afrykanom. Bo inaczej jednego po drugim spotka to, co przytrafiło się Kaddafiemu”.
+
+Zwięźle mówiąc jest to ostrzeżenie, lecz Ameryka Południowa wysłała w ciągu ostatnich 40 dni trzy potężne wiadomości; ostatnią i najważniejszą w dn. **3 sierpnia**, i była ona transmitowana na żywo z Nowego Jorku, z siedziby MFW. A teraz parę faktów.
+
+**15 czerwca 2012**, Julian Assange zrozumiał, że już po nim. Wiedział, że go aresztują w Sztokholmie, zabiorą z lotniska, i to nie policja Króla Szwecji, ale dwóch oficerów CIA oraz amerykański dyplomata, używających szczególnych porozumień zawartych między tymi dwoma państwami, z jakich wynika, że Assange „aktywnie zakłócił” przebieg operacji Nato w czasie konfliktu w Iraku, gdy wojna nadal trwała. Potem zostanie zabrany bezpośrednio do USA, do stanu Teksas i poddany śledztwu kryminalnemu za działalność terrorystyczną. W czasie procesu prokurator zażąda kary śmierci w oparciu o zapisy &#8222;_the Patriot Act&#8221;_. Assange po konsultacjach w swej grupie, **19 czerwca** 9:00 wchodzi do ambasady Ekwadoru. Jego zespół rozpoczyna negocjacje z agentami brytyjskimi w Londynie, Szwedami w Sztokholmie oraz dyplomatami amerykańskimi w Rio de Janeiro. Zapada zgoda na to, aby Olimpiada przeszła w spokoju, po zakończeniu której może on po cichu polecieć do Ameryki Południowej na zasadzie „tylko o tym nie gadaj naokoło”, lecz on i jego grupa nie ufają anglo-amerykanom (słusznie) **3 oraz 4 sierpnia** przeprowadzając dwa mistrzowskie posunięcia.
+
+**03 sierpnia 2012**, na 16 miesięcy przed terminem, prezydent Argentyny, Cristina Kirchner, przybywa do siedziby MFW na Manhattanie w towarzystwie ministra finansów oraz ministra spraw zagranicznych Ekwadoru, Patino, reprezentujących organizację ‘Alba’ (Labour Alianza Bolivariana America), unię gospodarczą między Ameryką Łacińską a krajami Morza Karaibskiego. Przy okazji Kirchner oddaje tam czek na kwotę **12 mld $** (termin zwrotu pożyczki przypadał na 31 grudnia 2013 r.). Ogłasza ona, że poprzez tę spłatę, Argentyna pokazuje dowód na swą wypłacalność i odpowiedzialność, daje powód do zaufania tym, którzy zechcą zainwestować tam środki. Argentyna w 2003 r. popadła w zwłokę z płatnością 112 mld $, ale odrzuciła metodę zanegowania swego zadłużenia; ogłosiła bankructwo i potrzebowała 10 lat na zwrot długu wraz z odsetkami.
+  
+**Przez 10 lat Argentyna walczyła z usiłowaniami MFW** narzucenia temu państwu restrykcyjnych środków oszczędności gospodarczych. Wybrano inną ścieżkę, zgodną z doktryną Keynesa i opartą na finansowaniu infrastruktury, rozwijania badań, innowacji, zamiast cięcia wydatków. Kraj podniósł się z upadku i spłacił ostatnią ratę pożyczki MFW z 16-miesięcznym wyprzedzeniem. To jeszcze raz dowodzi, że pomysły MFW i Banku Światowego są szkodliwe i błędnie ukierunkowane. **TINA (“There is no alternative” – nie ma wyboru) jest kłamstwem forsowanym wśród większości krajów świata przez elitę oligarchów**.
+  
+**Po 15 min. od dokonania tej płatności, Kirchner złożyła formalną skargę przeciw USA i UK skierowaną do WTO, na podstawie danych, jakie Argentyna otrzymała od Wikileaks/Assange&#8217;a.**
+
+Argentyna po spłaceniu długów, chce teraz naprawienia szkód wyrządzonych jej działaniem tych państw, wraz z należnymi odsetkami. To walka między Kirchner a Lagarde. **Dzięki Assange’owi, jego zespół ma zapisy wielu rozmów rządów wielu krajów świata, w tym USA, Francji, UK, Włoch, Niemiec oraz Watykanu**, gdzie rządzą pieniądze. Osama Bin Laden został odesłany do lamusa, a zastąpił do arcy-łotr John Maynard Keynes w myślach finansowych hegemonów.
+  
+**Assange stał się wrogiem publicznym** wielkich mocarstw odkąd **zebrał tajne zapisy długich rozmów** o tym, jak zadać cios gospodarkom krajów Ameryki Południowej, jak odebrać im ich surowce energetyczne oraz nie dać im się podnieść z upadku; **jak nie dopuścić, aby rządy przyjęły plany gospodarcze zgodne z modelami teorii Keynesa** zamiast przyjęcia zgody na dyktat MFW, którego jedynym celem jest forsowanie neokolonialnej polityki w głównej mierze służącej Hiszpanii, Włochom i Niemcom, przy użyciu kapitału brytyjskiego.
+  
+Większość plików została już opublikowana w internecie. Ci oraz owi zostali oddani na tacy przez Assange w UK i poproszono ich o wizytę w ambasadzie Ekwadoru.
+
+**3 sierpnia** w Nowym Jorku, Ekwador stał się pierwszym krajem w obu Amerykach i jedynym krajem na świecie od 1948 r., jaki zastosował koncepcję „**niemoralnego długu**” albo inaczej mówiąc politycznej czy technicznej odmowy zapłaty długów zagranicznych, ponieważ zostały one zaciągnięte przez poprzednie rządy w drodze korupcji, ze złamaniem prawa konstytucyjnego i innych prawem określonych wymagań.
+  
+**12 grudnia 2008** r., Rafael Correa, nowy prezydent Ekwadoru (którego produkt narodowy brutto wynosi ok. 50 mld $ albo inaczej mówiąc jest 50 razy mniejszy niż Włoch) ogłosił w telewizji, że podjął decyzję unieważniającą narodowe długi uważając je za nielegalne, gdyż ich zaciągnięcie łamało konstytucję, aby uciskać naród. Obecnie Ekwador ma nową zasadę konstytucyjną, która mówi, że legitymowane przez prawo jest to, co służy społeczeństwu.
+  
+**Ilość długu: 11 mld euro**. MFW dosłownie wymazał Ekwador z listy krajów cywilizowanych. „Ten kraj jest izolowany”, oświadczył Dominique Strauss-Kahn, ówczesny dyrektor generalny MFW.
+  
+**Następnego dnia, Hugo Chavez ogłosił, że Wenezuela będzie zaopatrywać Ekwador w ropę i gaz za darmo przez 10 lat. 4 godziny potem, prezydent Lula ogłosił, że Brazylia przekaże 100 ton dziennie pszenicy, ryżu, soji oraz owoców za darmo, aby wyżywić ludność dopóki kraj nie podniesie się z upadku. Jeszcze tego samego wieczora, Argentyna ogłosiła, że odda dla Ekwadoru 3 % swej produkcji wołowiny za darmo, aby zapewnić odpowiedni poziom protein dla ludności. Rankiem następnego dnia w Boliwii, Evo Morales ogłosił legalizację kokainy domowej produkcji i domowego użytku, nakazując przekazanie Ekwadorowi darmową dostawę liści koki oraz nieoprocentowaną pożyczkę w wysokości 5 mld, płatną w ciągu 10 lat w 120 ratach.**
+  
+**2 dni później**, Ekwador ogłosił, że korporacje krajowe: the United Fruit Company oraz Del Monte & Associates “za niewolnictwo i zbrodnie przeciwko ludzkości”, zostają znacjonalizowane, przez co cały przemysł bananowy znalazł się w rękach państwa (**Ekwador jest największym w świecie eksporterem bananów**).
+
+**10 dni później**, Bavarian Green ze Schleswig Holstein, Conad we Włoszech i Danii oraz Haagen Daaz otrzymały do podpisu umowy z nowym podmiotem na bazie „uczciwego handlu”. 20 grudnia 2008 r., kierując się notą protestacyjną the United Fruit Company, prezydent George Bush (jeszcze rządził do 17 stycznia 2009) ogłosił, że Ekwador podjął „decyzję kryminalną” i wezwał do wykluczenia go z szeregów Narodów Zjednoczonych.
+  
+Bush powiedział, że USA były nawet gotowe do „opcji militarnej, aby zabezpieczyć amerykańskie interesy”. Następnego dnia rano, wielka firma prawnicza _Goldberg & Goldberg_ przedstawiła opinię, że dla działania Ekwadoru znajduje się prawniczy precedens. 6 godzin później **USA dały za wygraną i wezwały społeczność międzynarodową do zakwestionowania prawomocności koncepcji „niemoralnego długu”**. The United Fruit Company ma na sumieniu systematyczną, polityczną korupcję; nakazano jej zapłacić 6 mld $ za wyrządzone szkody.
+  
+Co ciekawe, precedens prawniczy datowany jest na 4 stycznia 2003 r. i **podpisał go sam George Bush**. Tak, miało to miejsce w Iraku, który w tym okresie był „technicznie” w amerykańskim posiadaniu odkąd został zajęty przez siły zbrojne USA, a rząd tymczsowy nie uzyskał jeszcze autoryzacji w ONZ. Saddam Hussein zostawił po sobie długi w wysokości 250 mld euro (40 mld euro wobec Włoch, dzięki transakcjom zawartym przez Tareq Aziza, zastępcy Husseina i sojusznika watykańskiego Opus Dei), jaki USA anulowało przez zastosowanie koncepcji „niemoralnego długu”, w ten sposób tworząc najnowszy historyczny precedens.
+  
+Prawnicy nowojorscy rządu Ekwadoru zaproponowali Waszyngtonowi wybór: albo zaakceptuje ten fakt i będzie cicho albo zakwestionuje decyzję Ekwadoru, a tym samym również zdelegalizuje swoją własną w przypadku Iraku i sprawi, że skarb USA wypłaci bezzwłocznie 250 mld euro oraz należne odsetki za 4 lata. Obama, który był już wybrany, lecz jeszcze nie piastował stanowiska, poprosił Busha, aby ten dał sobie z tym spokój. Prawników z Nowego Jorku opłacił rząd brazylijski.
+
+**Rafael Correa**, ekwadorski prezydent-elekt, to nie przedstawiciel chłopski, jak Morales, ani unionista jak Lula, czy oficer jak Chavez; **pochodzi z klasy wyższej i jest intelektualistą**. Ukończył ekonomię i planowanie ekonomiczne na Harvardzie, sam siebie określa jako „chrześcijańskiego socjalistę”. Jego pierwszym aktem władzy było zamrożenie wszystkich rachunków bankowych kościelnego Instytutu Dzieł Religijnych w bankach Quito i skierowanie funduszy na program zasiłków socjalnych dla ludzi znajdujących się w fatalnym położeniu ekonomicznym.
+  
+**Postawił przed sądem całą klasę polityczną poprzedniego rządu**, z których większość poszła siedzieć, a przeciętny wyrok wyniósł 10 lat, skonfiskowano im majątki i znacjonalizowano je, a potem dokonano dystrybucji odebranych dóbr wśród ekologicznych spółdzielni rolniczych. **Correa wysłał list do papieża Ratzingera**, w jakim nazwał siebie “zawsze skromnym sługą Waszej Oświeconej Świątobliwości”, w nim także oficjalnie złożył prośbę, aby Watykan wysyłał do Ekwadoru tylko „duchownych obdarzonych darem głębokiej duchowości i gotowych służyć potrzebującym, i aby **unikać spekulantów, którzy mogą spowodować naruszenie praw człowieka**”.
+
+Dzisiaj, nowa Ameryka Południowa mówi “nie” kolonializmowi i niewolnictwu wielonarodowców z Europy i USA. Przez 400 lat odkąd Europejczycy odkryli, że banany są bogate w potas, Ekwadorczycy przeżyli ubóstwo, wyzysk i skrajną nędzę, gdy jednocześnie przez setki lat grupa brutalnych oligarchów bogaciła się ich kosztem; teraz już tego nie ma i nie będzie. Przykład Ekwadoru jest żywy i może powtórzyć się w każdym afrykańskim czy azjatyckim, a **nawet europejskim kraju**.
+  
+Lecz decydujący cios systemowi zadała sensacyjna wiadomość upubliczniona 4 sierpnia 2012 r., gdy Julian Assange wyznaczył **hiszpańskiego sędziego Garzóna**, wroga publicznego nr 1 zorganizowanej przestępczości, **najbardziej zagorzałego przeciwnika Silvio Berlusconiego**, a także absolutnie najgroźniejszego rywala globalnego systemu bankowego, na swojego obrońcę.
+  
+Hiszpański sędzia ma 35 lat doświadczenia i był odpowiedzialny za śledztwa w najważniejszych sprawach w swoim kraju przez ostatnie 25 lat. Jest ekspertem w dziedzinie „mediów i finansów”, a uzyskał światową renomę w 1993 r. po tym, jak Interpol wydał **nakaz aresztowania oparty na jego decyzji procesowej przeciwko Silvio Berlusconiemu i Fedele Confalonieri** (prawa ręka Berlusconiego) w sprawie transakcji, w jakich uczestniczyły Telecinco, Pentafilm, Fininvest, Reteitalia i La Cinq.
+
+Okazało się, że Pentafilm (z udziałem Berlusconiego i Cecchi Gori, a także osobnicy o inicjałach PD i PDL razem wzięci) kupiła prawa do filmu za 100 $, jakie sprzedała dla Columbia Pictures za 500 $, potem kupiła je Telecinco i sprzedała za 1000 $ innej włoskiej sieci filmowej, która ostatecznie sprzedała je dla Rai za sumę 2000 $, i tak dalej aż 142 razy sprzedawano ten sam film.
+  
+To znaczy, że Rai (czyli my) zapłaciliśmy za prawa do filmu 20 razy tyle, ile wart on jest na rynku i kupiliśmy go 3 razy, aby wszystkie 3 strony porozumienia były zadowolone. Przechodząc do sedna sprawy, Berlusconi był premierem, a Garzón został powstrzymany przez UE. Odniósł połowiczne zwycięstwo. Zamknął Telecinco i posłał za kraty hiszpańskich dyrektorów. W 2003 r. walka rozpoczęła sie na nowo, z nową przykrywką Berlusconiego, Mediaset.
+
+**W 2006** r., rząd włoski (Prodi & spółka) pomógł Berlusconiemu uniknąć postawienia w stan oskarżenia. W 2004 r., Garzon zaczął gromadzić dossier przeciw papieżowi Wojtyle oraz przeciwko **managementowi Instytutu Dzieł Religijnych w Hiszpanii i w Argentynie** w związku z **finansowaniem i wspieraniem przez Watykan junt wojskowych Pinocheta i Videla** w Południowej Ameryce. W 2010 r., Garzon złożył rezygnację pod naciskiem hiszpańskiego rządu, lecz zanim przeszedł w stan spoczynku, otworzył firmę prawniczą przeznaczoną wyłącznie do reprezentowania spraw międzynarodowych z dziedziny „mediów i finansów” przed Trybunałem w Hadze. Teraz jako oficjalny **orzeł Temidy Assange’a, sędzia Garzón ma dostęp do 145 tysięcy dokumentów, jakie są wciąż w posiadaniu Julian Assange’a**, których dotąd nie upubliczniono. Już zdążył powiadomić, że jego biuro jest przygotowane do wezwania wielu przywódców państw zachodnich do stawienia się przed sądem praw człowieka w Hadze. Oskarżenie dotyczyć będzie „**przestępstw przeciwko ludzkości, przestępstw przeciw godności człowieka**”.
+
+Szykuje się bitwa. Będzie to decydujące dla przyszłości wolności w sieci. W USA nie robią z tego tajemnicy, że chcą widzieć go martwym, to samo Brytyjczycy, lecz teraz to oni mają problem, bowiem Assange podjął kroki, aby utworzyć globalną grupę, jaka zajmować się będzie działalnością anty-informacyjną. Jej członkowie są anonimowi. Nie mają zdefiniowanej domeny. Po prostu wprowadzają dane, newsy, informacje i opowiadania o zdarzeniach. Oprócz tego, kto chce wiedzieć, gdzie spojrzeć i kto chce zrozumieć? Gdy rośnie temperatura, wszystko zaczyna wychodzić na jaw.
+  
+Imperium Brytyjskie straciło swój wystudiowany spokój i chce zatrzymać Assange’a, który z kolei ma dostęp do bezpośrednich źródeł informacyjnych. Zwyczajny fakt puszczenia tych danych w publiczny obieg może odebrać stołki tym, którzy rządzą i przypomnieć ludziom, że znaleźliśmy się w stanie niewidzialnej wojny. Rządzący nie wiedzą, jak powstrzymać rozpowszechnianie informacji o tym, co się dzieje na świecie. Są ludzie, którzy ryzykują życie przez zwykły akt zamieszczenia informacji z anonimowej lokacji internetowej w Canberrze, Bogocie czy Saint Tropez. Wikileaks nie powinno się czytać jak plotek. Jego anonimowy zespół zasługuje na szacunek.
+
+Nie będziemy więcej mogli powiedzieć jutro, że “my nic nie wiedzieliśmy”. Ktokolwiek chce się dzisiaj czegoś dowiedzieć, będzie usatysfakcjonowany. Wystarczy spróbować.
+  
+Gdy to przetłumaczymy, to oznacza: zanim wyślemy do domu splugawioną klasę polityczną, jaka ledwie nas reprezentuje, paplanina nie przyniesie żadnego skutku. Gdyż obecnie wiemy, jak się sprawy mają. W przeciwnym razie, nie możesz się skarżyć lub być zaskoczonym, że we Włoszech nikt nigdy nawet się nie zająknął o Ekwadorze, o Rafaelu Correa, czy o tym, co wydarzyło się w Ameryce Południowej, o wściekłej bitwie, jaka odbywa się między prezydentem Argentyny i Brazylii z jednej strony, a Christine Lagarde i Merkel z drugiej. Czemu się dziwić, że Brytyjczycy chcą atakować zagraniczne ambasady?
+  
+**To nie miało miejsca nawet w czasie gorących dni tzw. Zimnej Wojny**. Jak to się mówi, gdy ktoś z Ameryki Południowej zapyta: „A co wy tam robicie w tej Europie, co tam się wyrabia?”, wtedy ty odpowiesz: „W Europie śpimy. Nie wiemy, że jest jeszcze jakieś życie poza nią”.
+
+
+  Nicola di Cora Modigliani Artykuł ten został przetłumaczony na angielski przez Sandhya Jain. źródło:http://globalnewsandviews.wordpress.com/2012/09/01/the-change-is-beginning-by-nicola-di-cora-modigliani/
